@@ -1,3 +1,14 @@
 ---
 layout: default
 ---
+# about
+---
+Tania Rosa Bindhoff’s repertoire comprises over twenty roles including Carlotta _(The Phantom of the Opera)_, Mabel _(The Pirates of Penzance)_, Johanna _(Sweeney Todd)_, Casilda _(The Gondoliers)_, Kate Keller _(The Miracle Worker)_, Giannetta _(L’elisir d’amore)_, Lady Thiang _(The King and I)_, Countess Ceprano _(Rigoletto)_, Dolly Levi _(The Matchmaker)_, Eulalie MacKecknie Shinn _(The Music Man)_, Dolly _(Die Dreigroschenoper in Oldenburg, Germany)_, and the title role of Hansel in Humperdinckʼs _Hansel and Gretel_.
+
+Other appearances include Rose Lennox _(The Secret Garden)_; Susanna _(The Conspirators)_; the Dew Fairy in _Hansel and Gretel_ at Annapolis Opera as a part of Opera AACC’s Educational Outreach Program; the soprano soloist in the Pergolesi Magnificat; the soprano soloist in the Fauré Requiem; and the soprano soloist in the Rutter Requiem. Ms. Bindhoff is a member of the Annapolis Opera chorus and has appeared in several productions, including _Roméo e Juliette, Aida, Rigoletto, and Cosi fan Tutte._
+
+Ms. Bindhoff holds her B.S. in Music from Towson University, and attended the Hawai’i Performing Arts Festival in 2007. Partial roles and scenes performed at HPAF and during her undergraduate studies include the Countess Almaviva _(Le nozze di Figaro)_, Fiordiligi _(Cosi fan Tutte)_, Papagena _(Die Zauberflöte)_, Zerlina _(Don Giovanni)_, Mercedes _(Carmen)_, Cherubino _(Le nozze di Figaro)_, Idamante _(Idomeneo)_, and Anne _(A Little Night Music)_.
+
+In addition to being a singer, Ms. Bindhoff is well versed in the technical side of theatre, currently in her fifth year as Stage Manager for Opera AACC. Her technical credits include _Riders to the Sea, The Magic Flute, Amahl and the Night Visitors, Die Fledermaus, The Mikado, The Death of the Bishop of Brindisi, Naughty Marietta, Cavalleria Rusticana, Pagliacci, The Telephone, The Medium, Dido and Aeneas, La Traviata, Carmen,_ and _Tosca_. In the 2014-2015 season, Ms. Bindhoff stage managed the world premiere of Tony Small’s operetta, _Qadar_, at the Clarice Smith Performing Arts Center under the artistic direction of Denyce Graves. She also stage managed the U.S. premiere of Jonathan Dove’s _Mansfield Park_ at Baltimore Theatre Project in conjunction with Peabody Opera.
+
+Ms. Bindhoff has served as both student conductor and assistant conductor for the Towson University Women’s Choir, the AACC Chamber Singers, and the AACC Concert Choir. In 2013, she made her official conducting debut with _Little Women_ at Miracle Players. Ms. Bindhoff cantors at St. Leo the Great Roman Catholic Church in Baltimore. Upcoming performances in the 2015-2016 season include stage managing _Don Giovanni_ with Opera AACC; conducting the orchestra for _9 to 5: The Musical_ with Silhouette Stages; music directing and conducting _Man of La Mancha_ with Miracle Players; and singing in the chorus of _Faust_ with Annapolis Opera.
